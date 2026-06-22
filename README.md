@@ -28,3 +28,5 @@ Always down to collaborate, make new friends and have a good conversation ☺️
 
 🤝 Professional: [LinkedIn](https://www.linkedin.com/in/emmarpoole/)  
 🫶 Personal: [Instagram](https://www.instagram.com/emmaxpoole/)
+
+<img width="198" height="169" alt="WavingJoyGIF" src="https://github.com/user-attachments/assets/b3573f62-570d-4725-a08e-3ea42476da9e" />
